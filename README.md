@@ -1,1 +1,3 @@
 # pensamantocomputacional
+
+joao pedro camargo
